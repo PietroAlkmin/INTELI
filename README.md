@@ -1,2 +1,0 @@
-# INTELI
-Tarefas e projetos
